@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @mamaegeo
 - 👀 I’m interested in software engineering
-- 🌱 I’m currently studying at uni
+- 🌱 I’m a student :)
 - 📫 How to reach me ...
 - ⚡ Fun fact: ...
 
